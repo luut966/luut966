@@ -10,3 +10,4 @@
 luut966/luut966 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+This account is not allowed to share with any other.  Belong to Thanh Luu  only.  Not allowed to merge or transfer to anyone else. 
